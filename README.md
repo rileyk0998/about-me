@@ -1,3 +1,3 @@
 Hi. My name is Riley.
-I go to HSTAT and am apart of the SEP program
-
+My email is rileyk0998@hstat.org.
+I go to HSTAT and am apart of the SEP program.
